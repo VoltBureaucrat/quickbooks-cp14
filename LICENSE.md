@@ -1,4 +1,4 @@
-# 
+# automatic QuickBooks PC版 扩展 是最佳 QuickBooks PC版 扩展，集成 移动访问 和 审计跟踪。安全、可靠、优化，性能最大化。
 
 
 
